@@ -3,5 +3,5 @@
 ### Hint: 
 
 ```
-4ee4e3d4daa3e2c9eee79cfaf74282f4
+4ΣiΣ
 ```
